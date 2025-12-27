@@ -1,0 +1,1 @@
+# Guri24-Suqafuran-Technical-Operations-Plan
